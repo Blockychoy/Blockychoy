@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Blockychoy
-- 👀 I’m interested in ... Nintendo Games Yo kai Watch and Anime
-- 🌱 I’m currently learning ... 
+- 👀 I’m interested in ... Nintendo Games, Yo kai Watch is a favorite
+- 🌱 I’m currently learning ... Coding Through some tutorials
 - 💞️ I’m looking to collaborate on ... Nothing ATM
 - 📫 How to reach me ... Fam7120@gmail.com
 
